@@ -1,6 +1,6 @@
 - 👋 Hi fellas, I’m @proudorbit
 - 👀 I’m interested in bots
-- 🌱 I’m currently learning making botd
+- 🌱 I’m currently learning making bots
 - 💞️ I’m looking to collaborate on money :3
 - 📫 How to reach me (whatsapp, instagram) 
 - 😄 Pronouns: she/her
